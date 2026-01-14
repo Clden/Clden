@@ -1,3 +1,5 @@
 i got my name from someone i looked up to years ago. i just replaced one letter and i’ve kept it ever since, a small piece of something that used to matter like everything else i never bothered to let go of.
 
 i'm really inconsistent with everything i do. i can’t stick to a schedule, and the idea of forcing myself into one makes me feel trapped, so i end up doing nothing instead. my motivation comes in random bursts, and when it’s gone, it’s like i forget what it even felt like to care. i drift between long stretches of emptiness and brief flashes of energy that fade just as quickly. i tell myself i should fix it, but i don’t think i really believe i can. it’s easier to just stop thinking about it. it’s like every time i try to change, i end up right where i started.
+
+Discord: @luvlwst ID: 620150115084140564
